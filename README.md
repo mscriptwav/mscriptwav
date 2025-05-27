@@ -17,7 +17,7 @@
 
 - 📫 How to reach me **tamakoworld29@gmail.com**
 
-- 📄 Know about my experiences [I'm a Sophomore in high school as of writing this in 2025](I'm a Sophomore in high school as of writing this in 2025)
+- 📄 Know about my experiences [I'm a Sophomore in high school as of writing this in 2025]
 
 - ⚡ Fun fact **I'd love to learn to code someday**
 
